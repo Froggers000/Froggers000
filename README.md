@@ -10,6 +10,5 @@ Meu nome é Isaac camargo
 
   isaac.camargo.santos@escola.pr.gov.br
 
-@cubinhod
 
 ![]()https://media.tenor.com/QK0jqC7t2FQAAAAi/poggers-pog.gif
